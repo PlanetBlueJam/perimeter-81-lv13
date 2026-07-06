@@ -1,4 +1,4 @@
-
+secure Atlas VPN Extension | kill-switch + 24/7-support is the best Atlas VPN extension, featuring kill-switch and 24/7-support. Secure, fast, and optimized for privacy.
 
 
 
